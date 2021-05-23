@@ -35,7 +35,7 @@ Saya Memiliki Banyak Fitur Praktis Seperti :
 ┣• Mendownload Lagu.
 ┣• Mencari Lagu Yang ingin di Putar atau di Download.
 ┗━━━━━━━━━━━━━━
-❃ Managed With ☕️ By : [Risman](https://t.me/mrismanaziz)
+❃ Managed With ☕️ By : [IKYY](https://t.me/boyfriendnice)
 ❃ Thanks To : [Risman](https://t.me/mrismanaziz)
 ━━━━━━━━━━━━━━━
 Ingin Menambahkan Saya ke Grup Anda? Tambahkan Saya Ke Group Anda!
